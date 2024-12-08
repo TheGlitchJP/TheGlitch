@@ -1,1 +1,1 @@
-
+TheGlitchはgamewithでバグに関する投稿をしている暇人です。
